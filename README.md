@@ -1,1 +1,0 @@
-# Wastage-Web-App
